@@ -9,3 +9,5 @@ Tweets: https://twitter.com/TheUnicornist
 LinkedIn: https://www.linkedin.com/in/unicornist
 
 What the [unicornist.com](https://unicornist.com/) ?
+
+Obsessed with: Decentralization, AI, Scaling, Design, Leadership/Entrepreneurship
