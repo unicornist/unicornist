@@ -1,8 +1,11 @@
-My gists: https://gist.github.com/unicornist
+Gists: https://gist.github.com/unicornist
 
-My pens: https://codepen.io/Unicornist
+Pens: https://codepen.io/Unicornist
 
-My SE: https://stackexchange.com/users/1617363/unicornist?tab=accounts
+SE: https://stackexchange.com/users/1617363/unicornist?tab=accounts
 
-My tweets: https://twitter.com/TheUnicornist
+Tweets: https://twitter.com/TheUnicornist
 
+LinkedIn: https://www.linkedin.com/in/unicornist/
+
+What the unicornist.com ?
