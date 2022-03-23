@@ -1,13 +1,15 @@
-Gists: https://gist.github.com/unicornist
+**✨ Obsessed with:** Decentralization, AI, Scaling, Design, Leadership and Entrepreneurship
 
-Pens: https://codepen.io/Unicornist
+**💉 Addicted to:** Learning new stuff, Screens, Creating
 
-SE: https://stackexchange.com/users/1617363/unicornist?tab=accounts
+**💪 Good at:** Asking questions, Coaching/Mentoring/Teaching, Finding edge cases, Seeing the bigger picture and the tiniest details at the same time
 
-Tweets: https://twitter.com/TheUnicornist
+- Gists: https://gist.github.com/unicornist
+- Pens: https://codepen.io/Unicornist
+- StackExchange: https://stackexchange.com/users/1617363/unicornist?tab=accounts
+- Tweets: https://twitter.com/TheUnicornist
+- LinkedIn: https://www.linkedin.com/in/unicornist
+- Medium: https://medium.com/@unicornist
 
-LinkedIn: https://www.linkedin.com/in/unicornist
 
-What the [unicornist.com](https://unicornist.com/) ?
-
-Obsessed with: Decentralization, AI, Scaling, Design, Leadership/Entrepreneurship
+What the [unicornist.com](https://unicornist.com/) ?!
