@@ -2,7 +2,7 @@
 
 **💉 Addicted to:** Learning new stuff, Screens, Creating
 
-**💪 Good at:** Asking questions, Coaching/Mentoring/Teaching, Finding edge cases, Seeing the bigger picture and the tiniest details at the same time
+**💪 Good at:** Asking challenging questions, Coaching/Mentoring/Teaching, Finding edge cases, Seeing the bigger picture and the tiniest details at the same time
 
 - Gists: https://gist.github.com/unicornist
 - Pens: https://codepen.io/Unicornist
