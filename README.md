@@ -1,8 +1,8 @@
 **✨ Obsessed with:** AI, Design, Leadership, Entrepreneurship, Scaling and Decentralization
 
-**💉 Addicted to:** Learning new stuff, Screens, Creating
+**💉 Addicted to:** Learning everything, Screens, Creating
 
-**💪 Good at:** Asking challenging questions, Coaching/Mentoring/Teaching, Finding edge cases and flaws
+**💪 Good at:** Asking challenging questions, Finding edge cases and flaws, Mentoring and Teaching
 
 **🧙‍♂️ Superpower:** Seeing the bigger picture and the tiniest details at the same time
 
