@@ -1,31 +1,13 @@
-### ✨ Obsessed with:
+**✨ Obsessed with:** AI, Design, Leadership, Entrepreneurship, Scaling and Decentralization
 
-- AI 🤖
-- Leadership 🙋‍♂️
-- Entrepreneurship 🌱
-- Scaling 🎈
-- Decentralization 🌐
-- Designing 💡
+**💉 Addicted to:** Learning everything, Screens, Creating
 
+**💪 Good at:** Asking challenging questions, Finding edge cases and flaws, Mentoring and Teaching
 
-### 💉 Addicted to:
-
-- Learning everything 🔬👨‍🔬
-- Screens 💻📱
-- Building 🏗👷‍♂️
-
-### 💪 Exceptionally Good at:
-
-- Asking challenging questions 🤔
-- Finding edge cases and flaws 👉
-- Mentoring and Teaching 👨‍🏫
-
-### 🧙‍♂️ Superpower:
-
-Seeing the bigger picture and the tiniest details at the same time
+**🧙‍♂️ Superpower:** Seeing the bigger picture and the tiniest details at the same time
 
 
-### 🐾 Online footprint:
+**🐾 Online footprint:**
 
 - Gists: https://gist.github.com/unicornist
 - Pens: https://codepen.io/Unicornist
@@ -35,4 +17,4 @@ Seeing the bigger picture and the tiniest details at the same time
 - Medium: https://medium.com/@unicornist
 
 
-_What the [unicornist.com](https://unicornist.com/) ?!_
+What the [unicornist.com](https://unicornist.com/) ?!
