@@ -1,4 +1,4 @@
-**✨ Obsessed with:** AI, Design, Leadership, Entrepreneurship, Scaling and Decentralization
+**✨ Obsessed with:** AI, Leadership, Entrepreneurship, Scaling and Decentralization, Building and Designing
 
 **💉 Addicted to:** Learning everything, Screens, Creating
 
