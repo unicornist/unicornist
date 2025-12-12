@@ -8,12 +8,10 @@
 
 **🐾 Online footprint:**
 
+- X/Twitter: https://x.com/TheUnicornist
+- Website: https://unicornist.com/
+- Medium: https://medium.com/@unicornist
+- LinkedIn: https://www.linkedin.com/in/unicornist
+- StackExchange: https://stackexchange.com/users/1617363/unicornist?tab=accounts
 - Gists: https://gist.github.com/unicornist
 - Pens: https://codepen.io/Unicornist
-- StackExchange: https://stackexchange.com/users/1617363/unicornist?tab=accounts
-- Tweets: https://twitter.com/TheUnicornist
-- LinkedIn: https://www.linkedin.com/in/unicornist
-- Medium: https://medium.com/@unicornist
-
-
-_What the [unicornist.com](https://unicornist.com/) ?!_
