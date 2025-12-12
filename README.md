@@ -1,8 +1,8 @@
-**✨ Obsessed with:** Product Design, Entrepreneurship, Leadership, AI, Decentralization
+**✨ Obsessed with:** Product Design, Entrepreneurship, Leadership, Scientific Approach, AI, Decentralization
 
 **💉 Addicted to:** Learning everything, Screens, Building
 
-**💪 Exceptional at:** Asking challenging questions, Finding edge cases and flaws, Mentoring and Teaching
+**💪 Exceptional at:** Asking challenging questions, Finding edge cases and flaws, Ideating and finding solutions, Mentoring and Teaching
 
 **🧙‍♂️ Superpower:** Seeing the bigger picture and the tiniest details at the same time
 
